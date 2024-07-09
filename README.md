@@ -1,5 +1,5 @@
 # 💫 About Me:
-⚒️ Working on Odin Anti Cheat<br>⚠️ Owner of Odin Network discord.gg/kitpvp<br>⭐ In school, grade 12
+⚒️ Working on Odin Network<br>⚠️ Owner of Odin Network discord.gg/YBHBn7UEtT<br>⭐ Out of School!
 
 
 ## 🌐 Socials:
